@@ -1,4 +1,4 @@
-
+Enhance your ProtonVPN experience with new ProtonVPN Client | streaming-optimization + DNS-leak-protection, the #1 client. Includes streaming-optimization and DNS-leak-protection
 
 
 
